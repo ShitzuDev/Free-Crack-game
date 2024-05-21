@@ -1,5 +1,7 @@
 # 🫧 CRACK GAME
-##### *This profil is in beta he evolved all the time.*
+**If a download link no longer works, please let me know on discord. All games are 100% safe and tested**
+##### *This profil is in beta he evolved all the time.* </br>
+
 ##### *No virus.* </br>
 ##### **Click on the button download.**
 -------------------------------------------------------------------------------------------------------------------------------------------------------------------------
