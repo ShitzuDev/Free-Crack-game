@@ -29,6 +29,7 @@
 - [Assasin Creed 2](https://drive.google.com/uc?id=1erXzA-0bo5Mqznq1DfbumFyGGhBL9XIo) </br>
 - [The Escapiste](https://mega.nz/file/5ftQWbLC#iNDeoPzUQd4qt4NDzPsxkksBHPxH8WY3bvpB5xiS5v4) </br>
 - [Hello Neighbor](https://mega.nz/file/FU1gRa4J#kfhAquS7Vmyr9sJKI50S0_G4CEXgXFuyWXeONdWXsyQ) </br>
+- [Sims (UnlockDLC)](https://drive.google.com/file/d/1UjYjCw_1vTG8M0D0ISDW8w3NXZhWete7/view) </br>
 ### 🕷️------Marvel------🕷️ </br>
 - [Spider-Man Remastered](https://gofile.io/d/7iofgs)
 
